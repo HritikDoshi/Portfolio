@@ -6,4 +6,5 @@ Feel freee to visit me🤗
 
 [To Visit](https://hritikdoshi.github.io/Portfolio/)
 
-![Resume](https://user-images.githubusercontent.com/66552063/122596698-e3721900-d087-11eb-8bca-94c3bc59ad3b.png)
+![Resume](https://user-images.githubusercontent.com/66552063/122639777-67c0ac80-d119-11eb-85cf-e9a21b40c4b7.png)
+
